@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @naid3n
 - 👀 I’m interested in day napping
 - 🌱 I’m currently learning felidology
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to learn
 - 📫 How to reach me ...
